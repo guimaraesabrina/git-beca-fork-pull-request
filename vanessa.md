@@ -1,0 +1,1 @@
+Ola Sabrina! Meu nome é Vanessa, tenho 22 anos, tive uma breve experiência com Git e pra mim está sendo ótimo fazer isso com você. Ouvi maravilhas de você na residência e agora estou confirmando tudo. Você arrasa muito garota.
